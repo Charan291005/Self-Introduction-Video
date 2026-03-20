@@ -50,3 +50,5 @@ To continuously learn, build impactful solutions, and contribute effectively in 
 
 - Email: shreecharan5277443@gmail.com  
 - 💼 LinkedIn: [Shree Charan](https://www.linkedin.com/in/shree-charan-n/)
+
+Link to the Introduction Video : https://drive.google.com/drive/folders/1j-iqtM8K-yk6tzP8tVmuam8kcFQ0KHbQ?usp=drive_link
